@@ -1,1 +1,0 @@
-https://crachacfotokidsportadapaz.netlify.app/
